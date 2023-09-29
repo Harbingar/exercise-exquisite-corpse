@@ -12,3 +12,5 @@ Alors, le chaperon rouge, plein de courage, rusa avec le loup, parvint à échap
 Hector jouait dans de petits bars, gagnant peu à peu en notoriété. Un producteur talentueux l'approcha, promettant gloire et fortune. Mais Hector, fidèle à ses convictions, hésita. Le dilemme entre la célébrité et l'authenticité le tourmenta…
 
 Hector, malgré les promesses de célébrité, choisit de rester fidèle à sa musique authentique, refusant le contrat du producteur. Il continua à jouer sa musique sincère, touchant les cœurs du public avec chaque note.
+
+Finalement, Hector réalisa que la véritable renommée résidait dans la passion et l'authenticité de sa musique. Il resta humble, se produisant dans des lieux intimes où il pouvait réellement se connecter avec son public, faisant ainsi de sa quête musicale un voyage enrichissant et authentique.
