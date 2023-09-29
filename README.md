@@ -9,6 +9,6 @@ Un jour, Hector décida de quitter son village pour suivre son rêve musical. Il
 
 Alors, le chaperon rouge, plein de courage, rusa avec le loup, parvint à échapper à ses griffes et sauva sa grand-mère en utilisant sa ruse. Ensemble, ils mirent en place un plan pour piéger le loup et protéger la forêt des futurs dangers.
 
-## FIN 
-
 Hector jouait dans de petits bars, gagnant peu à peu en notoriété. Un producteur talentueux l'approcha, promettant gloire et fortune. Mais Hector, fidèle à ses convictions, hésita. Le dilemme entre la célébrité et l'authenticité le tourmenta…
+
+Hector, malgré les promesses de célébrité, choisit de rester fidèle à sa musique authentique, refusant le contrat du producteur. Il continua à jouer sa musique sincère, touchant les cœurs du public avec chaque note.
